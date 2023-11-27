@@ -17,4 +17,4 @@ Australia takes responsible gambling seriously. Casinos are required to provide 
 And there you have it! Casino regulation in Australia is all about keeping things fair, safe, and responsible. It's a complex system with different rules in different places, but it all comes together to ensure that Aussies can enjoy their casino games in a secure and responsible environment. 
 So, next time you're at a casino in Australia, you'll know that a lot is going on behind the scenes to make sure you have a good time!
 
-<a href="https://jkr.co/" title="investment fund">jkr group</a>
+<a href="https://casinosonlineaus.com/" title="australian casinos">australian casinos</a>
